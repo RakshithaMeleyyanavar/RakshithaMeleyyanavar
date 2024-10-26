@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student!
+Dedicated engineering student passionate in technology and innovation!
 
 
 ## 🌐 Socials:
